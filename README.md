@@ -1,1 +1,1 @@
-# hi, chmo!
+# bye, chmo!
