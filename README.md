@@ -1,1 +1,1 @@
-# bye, chmo!
+# byef, chmo!
